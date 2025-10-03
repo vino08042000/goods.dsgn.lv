@@ -16,6 +16,6 @@ A browser template for presentational use, in HTML + CSS format.
 
 ---
 
-some random freebies • freely downloadable materials • unused project materials • creative commons derivatives • creative commons licensed • by [Jimmy Ofisia](https://dsgn.lv)
+some random freebies • freely downloadable materials • unused project materials • Creative Commons derivatives • Creative Commons licensed • by [Jimmy Ofisia](https://dsgn.lv)
 
-### ☞ [**Download** **Goods 02**](https://folder.dsgn.lv/b/goods02)
+### → [**Download** **Goods 02**](https://folder.dsgn.lv/b/goods02)
