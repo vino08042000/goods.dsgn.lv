@@ -16,6 +16,6 @@ Some black and white logotype ideations, produced pro bono for the [Indonesian R
 
 ---
 
-some random freebies • freely downloadable materials • unused project materials • creative commons derivatives • creative commons licensed • by [Jimmy Ofisia](https://dsgn.lv)
+some random freebies • freely downloadable materials • unused project materials • Creative Commons derivatives • Creative Commons licensed • by [Jimmy Ofisia](https://dsgn.lv)
 
-### ☞ [**Download** **Goods 21**](https://folder.dsgn.lv/b/goods21)
+### → [**Download** **Goods 21**](https://folder.dsgn.lv/b/goods21)
