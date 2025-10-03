@@ -16,6 +16,6 @@ Some unused graphics in vector (SVG) format, produced during a logo ideation, th
 
 ---
 
-some random freebies • freely downloadable materials • unused project materials • creative commons derivatives • creative commons licensed • by [Jimmy Ofisia](https://dsgn.lv)
+some random freebies • freely downloadable materials • unused project materials • Creative Commons derivatives • Creative Commons licensed • by [Jimmy Ofisia](https://dsgn.lv)
 
-### ☞ [**Download** **Goods 07**](https://folder.dsgn.lv/b/goods07)
+### → [**Download** **Goods 07**](https://folder.dsgn.lv/b/goods07)
